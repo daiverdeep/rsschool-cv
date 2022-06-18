@@ -1,1 +1,1 @@
-# rsschool-cv
+https://daiverdeep.github.io/rsschool-cv/
